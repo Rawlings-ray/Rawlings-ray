@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate on **Any project**
 
-- 👨‍💻 All of my projects are available at [(https://github.com/Rawlings-ray/Moringa-School-Weekly-Content.git)]
+- 👨‍💻 All of my projects are available at (https://github.com/Rawlings-ray)
 
 - 📫 How to reach me **raymond.kiplangat1@gmail.com**
 
