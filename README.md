@@ -15,7 +15,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/RaymondKiplangat.git](https://github.com/RaymondKiplangat.git)
 
-- 📫 How to reach me **raymond.kiplangat@students.moringaschool.com**
+- 📫 How to reach me **raymond.kiplangat1@gmail.com**
 
 - ⚡ Fun fact **I think am funny**
 
